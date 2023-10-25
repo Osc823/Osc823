@@ -28,3 +28,5 @@ Adaptabilidad a los cambios en el entorno de desarrollo web.
 Estoy siempre entusiasmado por conectar con otros profesionales, compartir ideas y aprender de manera conjunta. No dudes en ponerte en contacto conmigo. ¡Espero con ansias la oportunidad de colaborar contigo!
 
 https://www.linkedin.com/in/oscar-sierra-5033761b2/
+
+oscar00gaona@gmail.com
